@@ -1,1 +1,1 @@
-## Reposứitório de entrega de atividades de ADRE Prof. Gaio
+## Repositório de entrega de atividades de ADRE Prof. Gaio
